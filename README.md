@@ -1,2 +1,1 @@
-# moon
-@,
+# moon I don't hide anything.I am just open i need only people who can accept  me real .....i don't like to act good in front of you just to get s good certificate   .. i will  ne always  what i am.. and i need only what i deserve 
